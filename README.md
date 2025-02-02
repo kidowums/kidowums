@@ -14,6 +14,8 @@
      —⠀⠀you are all I long for⠀⠀⠀．．𓈒    ྀ།
 </p>
 
+---
+
 <p align="center">
-text here im too lazy rn
+I'll work on this thing once school break starts. This is all that u guys get for now😹.
 </p>
