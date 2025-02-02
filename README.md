@@ -13,3 +13,7 @@
 ⠀⠀⠀⠀◞                  kido⠀﹐⠀⠀! 128    𓂅 <br>
      —⠀⠀you are all I long for⠀⠀⠀．．𓈒    ྀ།
 </p>
+
+<p align="center">
+text here im too lazy rn
+</p>
